@@ -20,8 +20,6 @@ caio.santos04@escola.pr.gov.br
 
 
 
-
-
 ![](https://media.tenor.com/WWuKr0zRdGYAAAAM/messi.gif) 
 
 
@@ -29,6 +27,16 @@ caio.santos04@escola.pr.gov.br
 
 
 
-
-
 ![](https://media.tenor.com/LsYPAE9JiP8AAAAd/rolando-ronaldo.gif)
+
+
+
+
+
+
+
+
+
+
+
+
