@@ -27,7 +27,7 @@ caio.santos04@escola.pr.gov.br
 
 
 
-![](https://media.tenor.com/LsYPAE9JiP8AAAAd/rolando-ronaldo.gif)
+![](https://media1.tenor.com/m/pJyuKMSIMyAAAAAd/ronaldo-ronaldo-al-nassr.gif))
 
 
 
