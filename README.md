@@ -20,14 +20,11 @@ caio.santos04@escola.pr.gov.br
 
 
 
-![](https://media.tenor.com/WWuKr0zRdGYAAAAM/messi.gif) 
 
 
 
 
 
-
-![](https://media1.tenor.com/m/pJyuKMSIMyAAAAAd/ronaldo-ronaldo-al-nassr.gif)
 
 
 
