@@ -38,7 +38,7 @@ caio.santos04@escola.pr.gov.br
 
 
 
-![](https://tenor.com/reDeQuQfSiI.gif) 
+![]((https://media1.tenor.com/m/CTOmTWUgU04AAAAC/vardy-lgbt.gif)) 
 
 
 
